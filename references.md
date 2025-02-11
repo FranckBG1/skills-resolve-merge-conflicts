@@ -1,3 +1,3 @@
-# References
 
-* octocat 1 😈
+Nova chrono can't beat kenpachi zaraki
+
